@@ -4,4 +4,3 @@
 -  I’m looking to collaborate with international laboratories  
 - 📫 How to reach me s.khechafi@gmail.com
 - 😄 Pronouns: Sofiane
-- ⚡ Fun fact: Animals use Earth’s magnetic field for orientation!
